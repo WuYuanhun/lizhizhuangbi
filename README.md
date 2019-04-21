@@ -65,3 +65,9 @@
 啦啦啦啦啦啦    我们的生活多美好
 
 ### 我们需要更多的资源贡献者，如果可能，希望您能伸出援手。庞大的分布式节点网络，不就变成区块链了嘛。;-)
+
+External Link (你可能需要梯子):
+
+Wiki.cn: https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%BF%97#cite_note-9
+
+Lizhi's Homepage: http://www.nanjinglizhi.cn/
